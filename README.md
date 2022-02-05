@@ -2,7 +2,7 @@
 
 👋 Hi, I’m @Eweleval.
 
-👀 I’m interested in coding and programming.
+👀 I’m interested in tech and programming.
 
 🌱 I’m currently learning iOS development.
 
