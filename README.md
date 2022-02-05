@@ -8,4 +8,4 @@
 
 💞️ I’m looking to collaborate on projects that would help improve my skills and also help solve a problem in our society.
 
-📫 How to reach me on valeweleokenyi@mail.com.
+📫 How to reach me on valeweleokenyi@gmail.com.
